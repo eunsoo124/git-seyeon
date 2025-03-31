@@ -1,2 +1,2 @@
 # git-seyeon
-seyeon is very vety cute
+seyeon is very very cute
